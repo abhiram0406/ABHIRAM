@@ -60,4 +60,4 @@ I enjoy transforming raw data into actionable insights through dashboards, KPI a
 
 ## 📫 Connect With Me
 - 📧 Email: abhiramgoud5@gmail.com  
-- 🔗 LinkedIn: https://www.linkedin.com/in/abhiram-thallapelly
+- 🔗 LinkedIn: https://www.linkedin.com/in/abhiram-tallapelly
